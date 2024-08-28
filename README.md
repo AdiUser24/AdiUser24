@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Adi
-- 👀 I’m interested in "Minecraft"
-- 🌱 I’m currently learning "Not Yet"
-- 💞️ I’m looking to collaborate on "Not Yet'
+- 👀 I’m interested in "Minecraft and Photohgraph"
+- 🌱 I’m currently learning "How to Code and Photograph"
+- 💞️ I’m looking to collaborate on "With Windows'
 - 📫 How to reach me "DM Me at Discord @AdiUser24"
 
 <!---
